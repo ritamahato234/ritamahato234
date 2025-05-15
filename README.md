@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **ritamahato2355@gmail.com**
 
-- ⚡ Fun fact **love to do coding**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
